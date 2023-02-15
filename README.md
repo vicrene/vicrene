@@ -7,4 +7,4 @@
 ##### When not job-hunting or doing small data viz projects, I'm usually reading towards my yearly book goal, training for half/full marathons, or gaming.
 
 
-### I'm currently actively looking and immediately available for opportunities in Data Analyis, so feel free to shoot me a message at renegarciajr5@gmail.com or reach out on LinkedIn. Thanks!
+### I'm currently actively looking and immediately available for opportunities in Data Analysis, so feel free to shoot me a message at renegarciajr5@gmail.com or reach out on LinkedIn. Thanks!
